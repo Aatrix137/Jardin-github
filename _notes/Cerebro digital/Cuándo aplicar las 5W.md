@@ -1,2 +1,0 @@
-Son **EXTREMADAMENTE** útiles al momento de Recompilar [[Datos]] e [[Información]], sobre todo al momento de querer aprender algo a profundidad.
-Las **5W** son muy usadas al momento de realizar una [[Planificación Estratégica]] en una empresa.

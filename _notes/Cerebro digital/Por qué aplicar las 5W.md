@@ -1,1 +1,0 @@
-Las respuestas a estas preguntas satisfacen y abarcan la [[Información]] más **básica** e **importante** respecto a un tema. Al Recompilar [[Información]] estas preguntas **NO** admiten un =="Sí" o "No"== como respuesta, sino que obligan a ser explicadas. Profundizar en estas preguntas nos dará los cimientos básicos de la estructura general de la [[Información]].

@@ -1,3 +1,0 @@
-- Podemos aplicarlos en análisis de problemas de nuestra vida cotidiana y en todos los ==Métodos de Estudio==.
-- La aplicación de las **5W** es útil al momento de redactar una [[Noticia]], [[Documento]] o [[Formulario]] tanto físicos con mentales, sobre todo para aplicación práctica en la parte del **[[Proceso]] de [[Información]]** de la [[Pirámide del Conocimiento(DIKW)]] ![[Pirámide del Conocimiento(DIKW)#Información]]
-- También podemos aplicarla en el ==Análisis== de una [[Empresa]] a describirse a sí misma.
